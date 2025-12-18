@@ -5,3 +5,5 @@
 <img width="521" height="607" alt="Снимок экрана 2025-12-17 082257" src="https://github.com/user-attachments/assets/f6e5eb21-1f18-415b-bc76-b871e6046113" />
 <img width="263" height="326" alt="Снимок экрана 2025-12-17 084532" src="https://github.com/user-attachments/assets/5a5688c4-c35b-4d46-be57-c175420bc95c" />
 <img width="1449" height="719" alt="Снимок экрана 2025-12-17 082734" src="https://github.com/user-attachments/assets/b910a871-0e62-4b8e-816c-834622ba8875" />
+<img width="968" height="169" alt="Снимок экрана 2025-12-18 092026" src="https://github.com/user-attachments/assets/c715f9c6-93ef-44be-9ff4-fb5f457aca65" />
+<img width="637" height="204" alt="Снимок экрана 2025-12-18 091459" src="https://github.com/user-attachments/assets/2059c129-ab61-474d-a0de-6cd9b92c4d63" />
