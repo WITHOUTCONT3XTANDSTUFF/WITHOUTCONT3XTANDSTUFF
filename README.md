@@ -8,4 +8,6 @@
 <img width="968" height="169" alt="Снимок экрана 2025-12-18 092026" src="https://github.com/user-attachments/assets/c715f9c6-93ef-44be-9ff4-fb5f457aca65" />
 <img width="637" height="204" alt="Снимок экрана 2025-12-18 091459" src="https://github.com/user-attachments/assets/2059c129-ab61-474d-a0de-6cd9b92c4d63" />
 <img width="751" height="515" alt="Снимок экрана 2025-12-18 151550" src="https://github.com/user-attachments/assets/d81aa218-b2b9-474f-a5dc-96bc2276a080" />
-
+<img width="636" height="563" alt="Снимок экрана 2025-12-19 082137" src="https://github.com/user-attachments/assets/a73d424e-7b45-4c1b-aa44-62267d2a355f" />
+enrique!!
+<img width="68" height="79" alt="Снимок экрана 2025-12-18 232756" src="https://github.com/user-attachments/assets/b33cbbc7-07b5-4a2e-8f96-05616abf9923" />
