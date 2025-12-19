@@ -12,3 +12,4 @@
 enrique!!
 <img width="68" height="79" alt="Снимок экрана 2025-12-18 232756" src="https://github.com/user-attachments/assets/b33cbbc7-07b5-4a2e-8f96-05616abf9923" />
 *thrashes in a white straitjacket in white soft walls repeat the phrase....*
+<img width="501" height="68" alt="Снимок экрана 2025-12-20 005056" src="https://github.com/user-attachments/assets/6975a47c-70bd-4746-83ae-9ffeee9f15a1" />
