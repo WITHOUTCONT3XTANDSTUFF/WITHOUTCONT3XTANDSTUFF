@@ -15,3 +15,4 @@ enrique!!
 <img width="501" height="68" alt="Снимок экрана 2025-12-20 005056" src="https://github.com/user-attachments/assets/6975a47c-70bd-4746-83ae-9ffeee9f15a1" />
 
 how lucky i am i got europen fwiend who know s every term...../j
+<img width="653" height="676" alt="Снимок экрана 2025-12-20 170620" src="https://github.com/user-attachments/assets/ea43436f-322d-4c31-90d1-e64a97523b02" />
