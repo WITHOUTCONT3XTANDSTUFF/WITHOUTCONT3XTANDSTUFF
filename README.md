@@ -17,3 +17,4 @@ enrique!!
 how lucky i am i got europen fwiend who know s every term...../j
 <img width="653" height="676" alt="Снимок экрана 2025-12-20 170620" src="https://github.com/user-attachments/assets/ea43436f-322d-4c31-90d1-e64a97523b02" />
 <img width="1161" height="599" alt="classmate" src="https://github.com/user-attachments/assets/6d9e868a-19db-444d-b8e9-9889969e4606" />
+Will Wood's songs work wonders
