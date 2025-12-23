@@ -19,3 +19,5 @@ how lucky i am i got europen fwiend who know s every term...../j
 <img width="1161" height="599" alt="classmate" src="https://github.com/user-attachments/assets/6d9e868a-19db-444d-b8e9-9889969e4606" />
 Will Wood's songs work wonders
 <img width="1179" height="615" alt="image" src="https://github.com/user-attachments/assets/64620914-8c4f-4418-bb19-1ac1a086970e" />
+<img width="739" height="372" alt="image" src="https://github.com/user-attachments/assets/ddc3edb3-b87d-4e94-afd4-68fecea30893" />
+<img width="619" height="603" alt="image" src="https://github.com/user-attachments/assets/0c087d39-5e54-42b4-9f4f-d49647246901" />
