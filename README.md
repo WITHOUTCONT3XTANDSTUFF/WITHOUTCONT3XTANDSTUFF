@@ -34,3 +34,6 @@ Will Wood's songs work wonders
 
 # 03:18[VENETIAN BLIND MAN - WILL WOOD] harvey teaches shrimp russian rap and culture/j
 
+<img width="754" height="569" alt="image" src="https://github.com/user-attachments/assets/e5709542-9d74-46cf-a83c-68a8dc017215" />
+
+
